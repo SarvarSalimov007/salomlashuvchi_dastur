@@ -1,0 +1,1 @@
+# salomlashuvchi_dastur
